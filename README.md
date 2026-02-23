@@ -1,16 +1,49 @@
-## Hi there 👋
+# Hi. Call me Ed 🕸️
+I am 19 years old
 
-<!--
-**Edsi1/Edsi1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+> INTP | 5w4 sp/sx 549 | ILI (Balzac) | LEVF
 
-Here are some ideas to get you started:
+---
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Personality & Kin List
+kin = comfort / personality alignment, not roleplay claim
+
+* BSD: Ranpo Edogawa, Kunikida Doppo, Odasaku Sakunosuke
+* SPN: Castiel
+* Haikyuu!!: Kenma Kozume, Tsukishima Kei
+* JJK: Nanami Kento
+
+---
+
+### DNI — for my own comfort and boundaries (Do Not Interact):
+
+- under 16 (no minors, please)
+- trauma dumping 
+- self-dx / romanticizing disorders 
+- disrespecting boundaries 
+- manipulative behavior 
+-unwanted flirting 
+- drama-oriented interaction
+- demand for immediate responses
+(I may not respond right away, and that's okay)
+- unsolicited advice / “fixing” behavior
+(especially mental health or personal matters)
+- boundary testing / ignoring stated limits.
+- guilt-tripping or emotional pressure. 
+
+I value calm, respectful and mutual communication.
+
+---
+
+### 🎮 Fandoms
+<details>
+<summary>Main Interests (Click to expand)</summary>
+
+SPN, TLoU, BSD, One Piece, Resident Evil, JJK.
+</details>
+
+<details>
+<summary>Full List</summary>
+
+The Boys, Elden Ring, Marvel, Shameless, MHA, Mafia (No spoilers for Part 2!), Dexter, Little Nightmares, Watch Dogs, The Evil Within, Final Fantasy, Mortal Kombat, Apex Legends, Haikyuu!!, Detroit: Become Human, Golden Kamuy, Trigun, Silent Hill, Murdered: Soul Suspect: Supernatural. 
+</details>
