@@ -1,3 +1,5 @@
+![GIF](https://github.com/Edsi1/Edsi1/blob/36d03c2fecf719ae32c3112859fd5c53c22e4713/GfGva4vGq4qNsUf4N9.webp)
+
 # Hi. Call me Ed 🕸️
 I am 19 years old
 
